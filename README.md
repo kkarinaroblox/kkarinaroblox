@@ -4,7 +4,7 @@
 - 💞️ Gostaria de conectar com outros kpopers e estudantes iniciantes de programação!
 - 🎯 Meu objetivo é desenvolver sistemas que envolvam o K-Pop de alguma maneira
 - 📫 Me encontre em: Insta(@kkarinaroblox), Bluesky(@kkarinaaaa.bsky.social)
-- 😄 Meus pronomes são Ela/Dela
+- 🤵🏻‍♀️ Meus pronomes são Ela/Dela
 - ⚡ Fun fact: Eu odeio cebolas.
 
 <!---
